@@ -22,5 +22,5 @@ Diese Arbeit kann als Referenz oder Ausgangspunkt für weiterführende Forschung
 
 ## Kontakt
 
-Für weitere Informationen oder Fragen zur Arbeit, kontaktiere mich bitte über [robby9903@gmail.com] oder besuche mein [LinkedIn-Profil](https://www.linkedin.com/in/robert-kessler-69b496208/).
+Für weitere Informationen oder Fragen zur Arbeit, kontaktiere mich bitte per E-Mail oder besuche mein [LinkedIn-Profil](https://www.linkedin.com/in/robert-kessler-69b496208/).
 
